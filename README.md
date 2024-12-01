@@ -1,6 +1,6 @@
 # Tentacle Locker 2 APK: A Unique Gaming Experience 🌟
 
-🕹️🕹️🕹️ [Click Play Game Online!](https://bom.so/322iw7) 🕹️🕹️🕹️
+## 🕹️🕹️🕹️ [Click Play Game Online!](https://bom.so/322iw7) 🕹️🕹️🕹️
 
 ## What Is Tentacle Locker 2 APK? 🎮
 
